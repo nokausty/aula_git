@@ -1,1 +1,0 @@
-Carlos Daniel Bergamim Santos
